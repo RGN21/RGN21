@@ -1,7 +1,7 @@
 -  wags, I’m @RGN21
 - I’m interested in doing fuck all, probably code a few disc bots
 - I’m currently learning nothin
-- 💞️ I’m looking to collaborate on working on bots
+- I’m looking to collaborate on working on bots
 - How to reach me RGN#0204 on discord
 
 <!---
